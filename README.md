@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c language and web devlpment
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me , @inshortginn (instagram handle)
-- 😄 Pronouns: ...
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: every thing about tjis world is funny.
 
 <!---
